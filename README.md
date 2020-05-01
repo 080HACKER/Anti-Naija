@@ -30,11 +30,11 @@ Anti-Naija is a facebook hacking tool which it has included at least 10 hacking 
   <I> instagram ME: 080hacker
     
     
-    <B> NOTE:
+    <Z> NOTE:
     
-   <s> Please i don't author this tool for private
+   <W><S> Please i don't author this tool for private
     or make money i just did this for you's my brothers and for someone whose like to learn authoring then my tool it was decrypt you can copy it well...
   
-  <B> WARNING!
+  <Y> WARNING!
   
   DON'T USE THIS TOOL FOR ANY HARMFUL.
