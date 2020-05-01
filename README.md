@@ -13,7 +13,7 @@ Anti-Naija is a facebook hacking tool which it has included at least 10 hacking 
   
   # usage
   
- <b><h><u>cdAnti-Naija
+ <b><h><u>cd Anti-Naija
   
   <b><h><u>cd NAIJA
 
@@ -26,14 +26,15 @@ Anti-Naija is a facebook hacking tool which it has included at least 10 hacking 
  <B><U>THANKS FOR USING MY TOOL IF YOU HAVE SOME QUESTION YOU CAN CONTACK ME
   
   <W> whatsapp ME: +2349035145696
+  
   <I> instagram ME: 080hacker
     
     
-    <B>NOTE:
+    <B> NOTE:
     
-   <s>Please i don't author this tool for private
+   <s> Please i don't author this tool for private
     or make money i just did this for you's my brothers and for someone whose like to learn authoring then my tool it was decrypt you can copy it well...
   
-  <B>WARNING!
+  <B> WARNING!
   
   DON'T USE THIS TOOL FOR ANY HARMFUL.
