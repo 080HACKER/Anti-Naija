@@ -21,7 +21,7 @@ Anti-Naija is a facebook hacking tool which it has included at least 10 hacking 
   
   <b><h><u>ls 
  
-<b><h><u>sh Anti-Naija
+<b><h><u>sh AntiNaija
    
  <B><U>THANKS FOR USING MY TOOL IF YOU HAVE SOME QUESTION YOU CAN CONTACK ME
   
