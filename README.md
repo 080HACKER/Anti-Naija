@@ -32,7 +32,7 @@ Anti-Naija is a facebook hacking tool which it has included at least 10 hacking 
     
     NOTE:
     
-   <l><b> Please i don't author this tool for private
+   <standard> Please i don't author this tool for private
     or make money i just did this for you's my brothers and for someone whose like to learn authoring then my tool it was decrypt you can copy it well...
   
   <k> WARNING!
